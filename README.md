@@ -1,6 +1,6 @@
 # 老猫云机场官网地址
 
-最新地址：[laomaoyun.me](https://lm.laomaoyun.me/#/register?code=DmTK5EcY)
+最新地址：[laomao.org](https://laomao.org/#/register?code=DmTK5EcY)
 
 ## 简介
 
